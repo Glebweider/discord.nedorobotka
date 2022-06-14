@@ -1,0 +1,2 @@
+# discord.nedorobotka
+aitishink da
